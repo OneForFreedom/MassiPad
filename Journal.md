@@ -16,3 +16,12 @@ probably have to because I honestly don't want to spend my afternoon using a scr
 Oh and by the way, the reason I managed to do all of this, this fast was because I worked my ass off looking for parts for the 60% keyboard I was making, which can be found here : ("https://github.com/OneForFreedom/FreeBoard")
 
 Time spent : 6 Hours (This is relatively normal for me.)
+
+
+Entry 2: 5/7/25
+
+I can't Continue. This is a small but expensive project, and I just found out that its a 4 pointer, which is an impossible budget to work with, so this is my final goodbye.
+
+I'll still continue to work on other projects.
+
+Cya!
